@@ -1,7 +1,6 @@
 [English Version](#the-eldritch-dossier-aberration-alerts-in-existence) / [中文版本](#詭異生活異常通報事件簿)
 ---
 # The Eldritch Dossier: Aberration Alerts in Existence
----
 
 Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City Police Station
 
@@ -40,7 +39,6 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
 [English Version](#the-eldritch-dossier-aberration-alerts-in-existence) / [中文版本](#詭異生活異常通報事件簿)
 ---
 # 詭異生活異常通報事件簿
----
 
 作者：匿名護理師 | 地點：臺中市某派出所屬轄
 
