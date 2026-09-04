@@ -1,5 +1,3 @@
-【The Eldritch Dossier: Aberration Alerts in Existence】
-
 [English Version](#the-eldritch-dossier-aberration-alerts-in-existence) / [中文版本](#詭異生活異常通報事件簿)
 
 ---
