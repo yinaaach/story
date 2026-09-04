@@ -38,6 +38,8 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
     In the end... the news I dreaded most became reality: the grandfather was diagnosed with esophageal cancer. It was discovered too late—he was already in stage four (the advanced stage), where the five-year survival rate is typically less than 5% to 10%. He eventually passed away. A social worker called to apologize, and the child's father also expressed remorse... Do you think they genuinely cared about this relative? Or perhaps there was a hidden motive of self-interest at play all along? Or could it be... simply the ultimate conclusion of a slow-moving murder carried out collectively?????????
         © 2026 The Eldritch Dossier: Aberration Alerts in Existence. All Rights Reserved. Created by Celin
 
+[English Version](#the-eldritch-dossier-aberration-alerts-in-existence) / [中文版本](#詭異生活異常通報事件簿)
+
 ---
 
 # 詭異生活異常通報事件簿
