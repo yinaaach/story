@@ -1,3 +1,11 @@
+【Incident Log: Reports of Anomalies in a Bizarre Daily Life】
+[English Version](#the-eldritch-dossier-aberration-alerts-in-existence) / [中文版本](#詭異生活異常通報事件簿)
+---
+# The Eldritch Dossier: Aberration Alerts in Existence
+(完整英文版內容請參見參考網址)
+
+# 詭異生活異常通報事件簿
+(完整中文版內容請參見參考網址)
 [English Version](#the-eldritch-dossier-aberration-alerts-in-existence) / [中文版本](#詭異生活異常通報事件簿)
 
 ---
