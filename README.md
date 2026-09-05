@@ -27,8 +27,6 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
    As for the grandfather, his condition is even more bizarre. He consumes massive amounts of food, yet his body remains unnaturally emaciated. And when he sleeps, his breathing ceases for prolonged, agonizing intervals, before he abruptly gasps for air.
 
 **III. Clinical Anomalies & Collective Apathy**
-
-   I stand before this mirror—its surface slightly fogged and cloudy. When I deliberately raise my right hand to check my watch, I notice that my reflection inexplicably projects a haggard, decayed state, a face visibly aged far beyond my actual years. It is no illusion. The person in the mirror has sagging facial skin and a frail, powerless lower body. Although I feel no acute underlying illness, something is inexplicably amiss—a sensation I cannot quite put into words.What truly chills me to the bone is that the children have also begun showing anomalies, one after another. One of the children at times stares blankly into space, his movements sluggish, entirely oblivious to his own condition. The other child's school grades have plummeted, and he has become severely lethargic during the day; yet past midnight, he remains wide awake, spiraling into a state of hyperactivity, restlessness, and sudden bursts of irritability.As for the grandfather, his condition is even more bizarre. He consumes massive amounts of food, yet his body remains unnaturally emaciated. And when he sleeps, his breathing ceases for prolonged, agonizing intervals, before he abruptly gasps for air.
    
    The grandfather occasionally reports somatic discomfort and acid reflux. Tophi are prominently visible on his limb joints, and he has recently presented with a primary complaint of abnormal sensation during swallowing. Compounding our situation, the other child residing with us has begun demonstrating an inability to focus their right eye. As a registered nurse, my professional training allows me to recognize exactly where the pathology lies at a single glance. Observation of the cohabitants' dietary habits reveals a daily intake consisting strictly of sweets, alcohol, spicy foods, scalding water, pickled items, and hyper-sodium provisions. But what can be done? These traditional lifestyle patterns are too deeply entrenched to alter. Moreover, because they lack any medical background, they suffer from **profound anosognosia**—utterly blind to their own morbid decay.
    
@@ -77,10 +75,10 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
    116 年 7 月 15 日，凌晨 01:24。
     
    翻來覆去......總是睡不著。這個屋子裡發生的事情，總是違反了人類的常理......
+   
+   我站在這面略顯霧霧化的鏡子前。當我刻意對著鏡子抬起右手看錶時，卻發現鏡子裡的我，莫名顯現出一種年長狀態、明顯大於同齡的臉龐。那不是錯覺，鏡中的我臉部鬆弛、下半身無力，雖然身體感覺不是有什麼具體的急性異狀，但也就是說不出哪裡怪。更令人毛骨悚然的是，連孩子們也接連出現了異狀。其中一位孩子有時會兩眼放空、動作緩慢，自己根本不知道自己哪裡有問題。另一位孩子在學校的成績一落千丈，變得非常嗜睡；但到了半夜卻又不睡覺，整個人陷入亢奮、躁動與暴躁的情緒中。而家裡阿公就更詭異了，他平時吃得很多，身體卻瘦得不正常，睡覺時還會呼吸停止很久才突然吸氣。
 
 **三、 臨床異常與集體冷漠**
-
-   我站在這面略顯霧霧化的鏡子前。當我刻意對著鏡子抬起右手看錶時，卻發現鏡子裡的我，莫名顯現出一種年長狀態、明顯大於同齡的臉龐。那不是錯覺，鏡中的我臉部鬆弛、下半身無力，雖然身體感覺不是有什麼具體的急性異狀，但也就是說不出哪裡怪。更令人毛骨悚然的是，連孩子們也接連出現了異狀。其中一位孩子有時會兩眼放空、動作緩慢，自己根本不知道自己哪裡有問題。另一位孩子在學校的成績一落千丈，變得非常嗜睡；但到了半夜卻又不睡覺，整個人陷入亢奮、躁動與暴躁的情緒中。而家裡阿公就更詭異了，他平時吃得很多，身體卻瘦得不正常，睡覺時還會呼吸停止很久才突然吸氣。
  
    阿公有時表示自己身體不舒服、胃食道逆流，四肢關節也可以明顯看到痛風石，近期甚至還出現了吞嚥感異常的主訴。更糟糕的是，同住家人的另一位孩子，右眼竟然開始無法聚焦。我是護理師，專業訓練讓我這一眼就知道問題出在哪裡。觀察同住者飲食習慣，天天都是甜食、酒精、辣、熱開水、醃製物與高鈉食物。但這能怎麼辦？傳統的生活習慣早就根深體固，難以變更，而且他們都不是醫療人員，根本沒有病識感。
   
