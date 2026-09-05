@@ -28,7 +28,7 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
 
 **III. Clinical Anomalies & Collective Apathy**
    
-   The grandfather occasionally reports somatic discomfort and acid reflux. Tophi are prominently visible on his limb joints, and he has recently presented with a primary complaint of severe dysphagia. Compounding our situation, the other child residing with us has begun demonstrating an inability to focus their right eye. As a registered nurse, my professional training allows me to recognize exactly where the pathology lies at a single glance. Observation of the cohabitants' dietary habits reveals a daily intake consisting strictly of sweets, alcohol, spicy foods, scalding water, pickled items, and hyper-sodium provisions. But what can be done? These traditional lifestyle patterns are too deeply entrenched to alter. Moreover, because they lack any medical background, they suffer from **profound anosognosia**—utterly blind to their own morbid decay.
+   The grandfather occasionally reports somatic discomfort and acid reflux. Tophi are prominently visible on his limb joints, and he has recently presented with a primary complaint of dysphagia. Compounding our situation, the other child residing with us has begun demonstrating an inability to focus their right eye. As a registered nurse, my professional training allows me to recognize exactly where the pathology lies at a single glance. Observation of the cohabitants' dietary habits reveals a daily intake consisting strictly of sweets, alcohol, spicy foods, scalding water, pickled items, and hyper-sodium provisions. But what can be done? These traditional lifestyle patterns are too deeply entrenched to alter. Moreover, because they lack any medical background, they suffer from **profound anosognosia**—utterly blind to their own morbid decay.
    
    I tried to communicate, only to find that it was entirely futile. The child's father snapped at me, "Everyone eats like this, and everyone is perfectly fine. What is wrong with you? Are you out of your mind?" When I turned to the grandmother, she fired back in anger, "You say we can't eat this, we can't eat that—then what on earth are we supposed to eat?!" Finally, I spoke to the grandfather, who simply pulled traditional family rank on me, "Just listen to your grandmother. You are the junior here; why do you have so many opinions? Are you having a mental breakdown?" This collective apathy and incomprehension has even begun to metastasize outward, spreading to the police, social workers, and the courts.
 
@@ -77,7 +77,7 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
 
 **三、 臨床異常與集體冷漠**
 
-   阿公有時表示自己身體不舒服、胃食道逆流，四肢關節也可以明顯看到痛風石，近期甚至還出現了難以吞嚥的主訴。更糟糕的是，同住家人的另一位孩子，右眼竟然開始無法聚焦。我是護理師，專業訓練讓我這一眼就知道問題出在哪裡。觀察同住者飲食習慣，天天都是甜食、酒精、辣、熱開水、醃製物與高鈉食物。但這能怎麼辦？傳統的生活習慣早就根深體固，難以變更，而且他們都不是醫療人員，根本沒有病識感。
+   阿公有時表示自己身體不舒服、胃食道逆流，四肢關節也可以明顯看到痛風石，近期甚至還出現了吞嚥感異常的主訴。更糟糕的是，同住家人的另一位孩子，右眼竟然開始無法聚焦。我是護理師，專業訓練讓我這一眼就知道問題出在哪裡。觀察同住者飲食習慣，天天都是甜食、酒精、辣、熱開水、醃製物與高鈉食物。但這能怎麼辦？傳統的生活習慣早就根深體固，難以變更，而且他們都不是醫療人員，根本沒有病識感。
 我試著去溝通，卻發現根本沒有用。孩子的父親對我說：「大家都是這樣的飲食習慣，大家都沒事，妳哪裡有問題？是神經病嗎？」去跟阿嬤說，阿嬤卻生氣地回：「妳這不能吃、那不能吃，到底可以吃什麼？？？」接著跟阿公說，阿公也是提出長輩的架子：「就聽阿嬤的，妳是晚輩，怎麼這麼多意見？妳是不是精神有問題。」這種集體的漠視與不理解，甚至向外擴散到了警察、社工和法院。
 
 **四、 制度性失敗與系統性煤氣燈效應**
