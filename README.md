@@ -10,13 +10,13 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
 
 **I. Case Overview**
     
-   This case was initially logged in July of Year 116 by a resident of Taichung City (hereinafter referred to as "the Reporter"). 
+   This case was initially logged in July of Year 2025 by a resident of Taichung City (hereinafter referred to as "the Reporter"). 
    
    The Reporter claims that over the dozen or so years of their residency, the outcomes of legal cases unfolding in their surroundings have consistently failed to align with factual elements...
 
 **II. Investigator's Field Observation Log (Excerpt)**
    
-   July 15, Year 116, 01:24 AM. 
+   July 15, Year 2019, 01:24 AM. 
    
    Tossing and turning... I simply cannot sleep. The events unfolding in this house defy all human reason...
    
@@ -66,13 +66,13 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
 
 **一、 事件概述**
 
-   本案由居住於臺中市居民（以下簡稱通報人）於 116 年 7 月份首次提報。
+   本案由居住於臺中市居民（以下簡稱通報人）於 2025 年 7 月份首次提報。
    
    通報人宣稱其所居住之十幾年，生活周遭發生司法案件結果總是不符合事實要件......
 
 **二、 調查員實地觀測紀錄（節錄自調查日誌）**
 
-   116 年 7 月 15 日，凌晨 01:24。
+   108 年 7 月 15 日，凌晨 01:24。
     
    翻來覆去......總是睡不著。這個屋子裡發生的事情，總是違反了人類的常理......
    
