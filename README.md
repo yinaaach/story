@@ -22,7 +22,7 @@ Author: anonymous registered nurse | Location: Jurisdiction of a Taichung City P
    
    I stand before the mirror—its surface slightly fogged and cloudy. When I deliberately raise my right hand to check my watch, I notice that my reflection inexplicably projects a haggard, decayed state, a face visibly aged beyond my actual years. It is no illusion. The person in the mirror has sagging facial skin and a frail, powerless lower body. But I feel no acute underlying illness; something is inexplicably amiss—a sensation I cannot quite put into words.
    
-   What truly chills me to the bone is that the children have also begun showing anomalies, one after another. The eldest child at times stares blankly into space, his movements sluggish, entirely oblivious to his own condition. His school grades have plummeted, and he has become severely lethargic during the day; yet past midnight, he remains wide awake, spiraling into a state of hyperactivity, restlessness, and sudden bursts of irritability.
+  What truly chills me to the bone is that the children have also begun showing anomalies, one after another. One child at times stares blankly into space, his movements sluggish, entirely oblivious to his own condition. And the other's school grades have plummeted, and he has become severely lethargic during the day; yet past midnight, he remains wide awake, spiraling into a state of hyperactivity, restlessness, and sudden bursts of irritability.
    
    As for the grandfather, his condition is even more bizarre. He consumes massive amounts of food, yet his body remains unnaturally emaciated. And when he sleeps, his breathing ceases for prolonged, agonizing intervals, before he abruptly gasps for air.
 
